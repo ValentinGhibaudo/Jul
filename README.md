@@ -1,4 +1,1 @@
-Juuuul' ....
-
-
-![Mon logo](On t'aime jul' - Imgur.png)
+On t'aime jul'
